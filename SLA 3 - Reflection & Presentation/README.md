@@ -2,7 +2,7 @@
 
 **Topic:** My Self-Learning Journey
 
-**Presentation:** See the PDF file in this folder.
+**Presentation:** See the PDF of PPT in this folder.
 
 **Video presentation:** https://drive.google.com/drive/u/0/folders/1fG5VwkFm6hBDLO0xU70IX7XCDc715sDh
 
